@@ -1,4 +1,4 @@
-Flower valley is dedicated to promoting beautiful bouquets of flowers so that people can purchase the most beautiful bouquets efficiently and high-quality in their daily life. Our beautiful bouquets adorn your beautiful life.
-Our app displays all kinds of flower bouquets, including greeting flowers for elders, expressing love, visiting flowers, birthday flowers, immortal flowers and other flowers. These complete variety of bouquets can meet the user's choice and purchase. Meanwhile, our app makes a very detailed classification of these bouquets to help users quickly find the bouquets they want to buy.
-Beautiful flowers in the valley of flowers!
-If you have any questions, please contact us at wenpinxuan1@163.com
+WengCao tea city is committed to promoting the tea culture of the Chinese nation, so that people can purchase the tea they want in their daily life with high efficiency and quality. Let people more closely experience the tea culture of the Chinese nation.
+    Our app displays a full range of teas, including scented tea, mandarin orange, puer tea, white tea, green tea and black tea. These complete categories of tea can meet the user's selection and procurement. At the same time, our app classifies these commodities in a very detailed way, which helps users quickly find the tea they want to buy. Our app enables users to enjoy the Chinese tea culture easily and happily.
+    Buy high-quality tea to WengCao tea city
+If you have any questions, please contact us at schornakmorin@gmail.com
